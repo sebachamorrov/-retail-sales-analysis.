@@ -1,1 +1,1 @@
-# estudio
+# Se detallan mis proyectos
